@@ -4,4 +4,4 @@
  Choo Sin Jie (164517) \
  Cheah Jia Ning (164328) \
  Chiang Ho Lei (163715) \
- Wong Wei Ze (164825) \
+ Wong Wei Ze (164825) 
